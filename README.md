@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LeRainbowNinja
+- 👋 Hi, I’m @LeRainbowNinja🏰
 - 👀 I’m interested in yo mama
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on defi
